@@ -28,7 +28,7 @@ ability to be here and to be "present" for this experience.</p>
  * Matthew Turk
  * Cameron Hummels
 
-Two additional folks who have bene extremely active lately I'd like to
+Two additional folks who have been extremely active lately I'd like to
 recognize are Clément Robert and Corentin Cadiou.
 
 ---
